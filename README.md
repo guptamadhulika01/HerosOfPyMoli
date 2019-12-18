@@ -10,7 +10,9 @@ Results of Analysis:
 2.	Males are also the higher spenders from their counterparts. 
 
 3.	Age group 23 – 26 has the highest no. players for the game at more than 33%.
+
 4.	Age group 23 – 26 are also the highest spender group.
+
 5.	Oathbreaker, Last Hope of the Breaking Storm was the most popular bought item of the game, 
 
 
