@@ -16,7 +16,7 @@ Results of Analysis:
 5.	Oathbreaker, Last Hope of the Breaking Storm was the most popular bought item of the game, 
 
 
-Take Away: 
+Take Away from the analysis: 
 
 1.	Similar game plans / games can be targeted for male populations.
 
